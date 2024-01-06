@@ -1,1 +1,1 @@
-# 75-Days-challenge-with-frienductaion_Ayush_Raj
+# 45_days-challenge-with-frienductaion_Ayush_Raj
